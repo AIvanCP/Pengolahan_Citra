@@ -1,1 +1,13 @@
 just a jobsheet for school project
+
+![Uma](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbnNqOGJnZ2Q1YXJnZW9oaTBqNHg3Z2c3dWk0NmFlcXRkeWxocG9kZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Y5GlGjo5ut42cMEapq/giphy.gif)
+![Mambo](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNnVzZDBrd3hrd2ZnbHl0dTN5a2h0ODlhcDFzam50d255ejFpbGJlaiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/CgyMZEtydRJfu5ZhZj/giphy.gif)
+![Kita](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExOGJ2MXFtbGwzMDNjNzdmYjA1NWpvNzk1bGJveXpjNnBrYXRlc2o4ZCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/YiyM2WVePx88pndaDO/giphy.gif)
+![umapyoi](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcHA2bXdkb3UwZ3U5MGY3b3JqdjEyM3IzbDM3bWJ5dGo2ODFlNnRmaSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/k0H536HPvMweoMwEUE/giphy.gif)
+![admint](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3M3RhOGd6ZDV0c3Q5NDRxN2VnOWY2d3ZrOHBwaGZzcnluc3BtYWI2cCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/5JcHFbvuKDKsXfYeAH/giphy.gif)
+![chen](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExanplMmVzN2FqZzl1eHI3bGFvYWVsYXFxa214N24zM3NlNXNvZWVtMiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/tBDLxi8N6VO9aoEzgi/giphy.gif)
+![iwak](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExemN4MDQxeHgwNXJpbGIxenNjM3BkdzJxcGdzODhsazhhYTZpOXMwcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GtnRJsUSV7Us4uEpQM/giphy.gif)
+![kei](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeHc3M3l2aHF5ZXlpMGFocmhxNGN2ZzFidDV5YTFjd2JxdnlicWV3YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tnOz5NTfEhyTQcQTwk/giphy.gif)
+![cupiki](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExNnAycTIyb2F2NDY4ZHhxazk5b2o5ajN2aW9oM3ZvbmgwZnl0MHBpbyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/VRlK4pkmGgnIUTwOOJ/giphy.gif)
+![doro](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2hjMGhocGk0NjZwbHc1dnFqMGg0NDhxYzFtb3FpdDZ6aHdsaW12ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2rCMo3w1lBeHQnxBul/giphy.gif)
+![nanami](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExdGRpNWd2dmJoY2N5amY2eHMyNjlxdmU1cXhvMTAwbTZuNTZpY29weCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/pbP0KWXhQpZr3DsPsD/giphy.gif)
