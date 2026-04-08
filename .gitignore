@@ -61,3 +61,5 @@ explanations/
 *.explanation.md
 report/
 *.report.docx
+*.fix.py
+fix/
